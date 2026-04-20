@@ -30,5 +30,7 @@ O fluxo de trabalho estabelecido demonstra a importância da limpeza técnica an
 
 
 Autor: ALFREDO KAHAMBA FRANCISCO
-Contacto: [www.linkedin.com/in/alfredo-francisco-103a0b334]
+
+
+Contacto: www.linkedin.com/in/alfredo-francisco-103a0b334
 
